@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @FunjiSide
-- 👀 I’m interested in piracy
+- 👀 I’m interested in anime & manga
 - 🌱 I’m currently learning nothing
 - 💞️ I'm collaborating with myself
 - 📫 Don't reach me ...
